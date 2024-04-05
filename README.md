@@ -1,4 +1,4 @@
-### Join Us in Shaping the Currency of tomorrow with MoonBuck$! Pioneering Lunar Finance for generations to come.
+### 1st Official Inter-Planetary Token. Join Us in Shaping the Currency of tomorrow with MoonBuck$! Pioneering Lunar Finance for generations to come.
 
 <!--
 **MoonBuckSMOONS/MoonBuckSMOONS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
